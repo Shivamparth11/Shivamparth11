@@ -19,7 +19,7 @@
 
 📬 **Connect With Me**:
 - Fiverr: [fiverr.com/shivamraj822](https://fiverr.com/shivamraj822)
-- LinkedIn: [linkedin.com/in/YOUR_LINKEDIN](#)
+- LinkedIn: [linkedin.com](https://www.linkedin.com/in/shivam-raj-510049281/)
 
 ---
 
